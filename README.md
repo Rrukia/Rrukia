@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Rrukia
 - 🚿
-- 🤲 I am a man who always washing hands before codding
+- 🤲 I am a man who always washing hands before coding
 
